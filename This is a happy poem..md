@@ -1,7 +1,2 @@
-Please feel that sensation now.
-
----
-
-It is hard, indeed,
-To write about sex. At least,
-until you finish.
+This is a happy poem.\
+Please feel that sensation now.\

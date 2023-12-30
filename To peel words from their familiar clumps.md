@@ -1,32 +1,33 @@
-And fashion as pottery newly crafted phrases
-Novel lines that speak as novels
-Funny words expressing funny faces
+To peel words from their familiar clumps\
+And fashion as pottery newly crafted phrases\
+Novel lines that speak as novels\
+Funny words expressing funny faces\
 
-To coin a phrase and turn that phrase into turns of phrases
-Idioms be not our friends, except with a nink and a wod
+To coin a phrase and turn that phrase into turns of phrases\
+Idioms be not our friends, except with a nink and a wod\
 
-To withdraw from memory's vault our seemly dances
-Trace the contours of those daily routines
-And deposit again as well-rehearsed motions
-Worth more than Priam knew in golden Troy.
+To withdraw from memory's vault our seemly dances\
+Trace the contours of those daily routines\
+And deposit again as well-rehearsed motions\
+Worth more than Priam knew in golden Troy.\
 
-To breach decorum and betray the rhetorician
-who insists that meaning must always be pregnant
-who allows emotion to refuge in the commonplace
-where cycles of thought and belief idly rest.
-Thought must not rest.
-Belief must not rest.
+To breach decorum and betray the rhetorician\
+who insists that meaning must always be pregnant\
+who allows emotion to refuge in the commonplace\
+where cycles of thought and belief idly rest.\
+Thought must not rest.\
+Belief must not rest.\
 
-Shakespeare endures not for one aching page
-but for soulful stories across the age.
+Shakespeare endures not for one aching page\
+but for soulful stories across the age.\
 
-To tear and recombine, churn and churn again,
-such that the foaming sea may not settle, ever.
-To stitch and unstitch hours into a moment's thought
-such that human courtship of Grace may not whittle, never.
+To tear and recombine, churn and churn again,\
+such that the foaming sea may not settle, ever.\
+To stitch and unstitch hours into a moment's thought\
+such that human courtship of Grace may not whittle, never.\
 
-Orig. 6/27/23
-Q coffee
-Rev. 8/3/23
-Grandparent's house
+Orig. 6/27/23\
+Q coffee\
+Rev. 8/3/23\
+Grandparent's house\
 

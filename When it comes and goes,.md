@@ -1,1 +1,2 @@
-it'll be alright.
+When it comes and goes,\
+it'll be alright.\

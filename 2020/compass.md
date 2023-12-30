@@ -8,4 +8,4 @@ Second after second will slice you\
 Without unspoken sacrifice toward Heaven\
 Nothing new, only true\
 Says she who sat and listened\
-Feel forever, express never / Only to drown in the distance\
+Feel forever, express never / Only to drown in the distance

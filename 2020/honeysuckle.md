@@ -10,4 +10,4 @@ A neck for the coyote to suck\
 Another neck for Anubis to suck\
 The cactus will end what we don't\
 Honeysuckles rule our lives\
-I mean, surely we don't\
+I mean, surely we don't

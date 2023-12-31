@@ -1,1 +1,1 @@
-Poetry, edited with version control.
+Poetry, with version control.

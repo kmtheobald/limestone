@@ -224,11 +224,6 @@ To speak our national language of death.
 'Tis time, 'tis hour, to sprinkle pepper
 over the sinks.
 
-La recette du monde ne coute pas grand chose, justement tout
-Il est parfois trop difficile de faire la difference
-Mais ca en vaut le coup
-Pour cette recette, quelques ingredients
-amour-propre, soutien, ...
 
 How'd this day arrive? How'd de come to die?
 It's His world - I'm just borrowing it.

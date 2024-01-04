@@ -10,5 +10,7 @@ everyone who remains returns home while\
 the next day patiently prepares\
 to begin.
 
-7/19/23\
+-----
+
+19 Jul 2023\
 Q coffee

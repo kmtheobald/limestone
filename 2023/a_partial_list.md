@@ -26,4 +26,6 @@ Water had no comment on the life it allows\
 The sun declined a patent for its bronzing rays\
 And words shy from the camera when approached.
 
-Laclede Lofts, St. Louis (bedroom)
+-----
+
+Laclede Lofts

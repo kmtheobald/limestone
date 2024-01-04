@@ -32,3 +32,8 @@ Knowing of holly thorned and wrath of God\
 Judgement that I feel isn't His to hold\
 For another, light above or maybe rod\
 For me, I keep this Earth -- its dirt, its gold.
+
+-----
+
+Orig. 29 May 2023
+Q coffee

@@ -15,3 +15,8 @@ That I mourn those tunes full before;\
 As I ready to be no more.\
 For the last act takes most the nerve:\
 To lift the needle from the curve.
+
+-----
+
+Orig. 31 Jan 2023\
+Laclede Lofts

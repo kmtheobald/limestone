@@ -21,3 +21,8 @@ Up you go to the stage\
 Now released from your cage\
 Knowing life's but a page (is)\
 You, the next great poet.
+
+-----
+
+Orig. ~Feb 2023
+Spine

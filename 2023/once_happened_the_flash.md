@@ -12,3 +12,8 @@ Soon enough caused you, in tears, to take flight;\
 Myself again a sorry sight to take.\
 May we toast to the memory of our ghosts\
 Who still know our past relation and boast.
+
+-----
+
+Orig. 29 Jan 2023\
+Scarlett's Wine Bar

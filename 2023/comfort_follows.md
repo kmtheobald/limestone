@@ -6,5 +6,7 @@ smile draws a second; your mind\
 together with soul will for-\
 ever win the games you play.
 
-7/19/23\
+-----
+
+19 Jul 2023\
 Q coffee

@@ -24,3 +24,7 @@ Tending after grey-spined notebooks filled with days,\
 That old fool, will once wonder but know\
 what became of her, day in, day out,\
 those choices which settled the question of who?
+
+-----
+
+Starbucks, Buffalo Grove

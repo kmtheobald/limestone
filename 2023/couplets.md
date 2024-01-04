@@ -18,3 +18,8 @@ Our time together past but makes me wince.
 
 Their sorrow knew not bound in time nor space --\
 Two masks always obscured what showed on face.
+
+-----
+
+Orig. ~Feb 2023
+Coffeestamp

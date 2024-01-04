@@ -20,4 +20,6 @@ Restoring drink away from thoughts so bad
 A real door closing kind of day\
 Before and after kind of day
 
-Living Room cafe, Maplewood
+-----
+
+Living Room Coffee

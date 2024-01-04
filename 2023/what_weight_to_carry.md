@@ -32,5 +32,7 @@ It had been gone for a long, long time\
 but at least, it\
 is no longer in your hand.
 
-7/19/23\
+-----
+
+Orig. 19 Jul 2023\
 Q coffee

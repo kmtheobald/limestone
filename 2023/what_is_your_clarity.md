@@ -16,5 +16,5 @@ in defiance of the innumerable men and women who've died\
 in vain attempt of discovery,\
 "Dear sir, what is your clarity?"
 
-2 Dec. 2023\
+Orig. 2 Dec 2023\
 Looking Meadow Cafe

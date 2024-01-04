@@ -8,5 +8,7 @@ Ahead, I feel an anxious wreck;\
 So up and down, and left and right,\
 and here and now, with all my sight.
 
-8/2/23\
+-----
+
+Orig. 2 Aug 2023\
 Grandparent's house

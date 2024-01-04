@@ -56,3 +56,8 @@ A flower grown,\
 A sound of music,\
 A light of sight\
 Heaven for everybody.
+
+-----
+
+Orig. ~Feb 2023
+Coffeestamp

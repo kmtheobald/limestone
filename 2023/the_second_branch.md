@@ -11,3 +11,7 @@ A cautious man may live, others will die,\
 and none the wiser he who hid and won.\
 This dandelion beast atop the yew\
 brings peace as bullets do shot from a gun.
+
+-----
+
+Starbucks, Central West End

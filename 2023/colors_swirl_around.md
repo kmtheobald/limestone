@@ -12,3 +12,7 @@ Dying stars only see in black and white,\
 though long ago they burned Yellow and Red;\
 Unable to turn, they curse their world\
 That took away soul and left just head.
+
+-----
+
+Grandparent's house

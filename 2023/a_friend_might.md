@@ -13,5 +13,6 @@ But you may find you cannot move\
 And, lo, your new eternal home\
 Leaves you locked in the catacombs
 
+-----
 
-Laclede Lofts, St. Louis (living room)
+Laclede Lofts

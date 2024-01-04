@@ -26,8 +26,11 @@ such that the foaming sea may not settle, ever.\
 To stitch and unstitch hours into a moment's thought\
 such that human courtship of Grace may not whittle, never.
 
-Orig. 6/27/23\
+-----
+
+Orig. 27 Jun 2023\
 Q coffee\
-Rev. 8/3/23\
+
+Last edited. 3 Aug 2023\
 Grandparent's house
 

@@ -8,4 +8,6 @@ Our feet turned every which way itching to move\
 Some make it across and through the page\
 Others stop before they can find a groove
 
-Laclede Lofts, St. Louis (bedroom)
+-----
+
+Laclede Lofts

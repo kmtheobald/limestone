@@ -17,3 +17,7 @@ Or, rather, not a thought\
 is thought. Commanding up\
 as the Sun beats desert\
 sky, should suffice for flight.
+
+-----
+
+Orig. 30 May 2023

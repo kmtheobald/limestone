@@ -1,13 +1,23 @@
 You sit around wondering just when\
-you'll do this, get to that, with a blank stare\
-But of course, you see, what you want is there\
-Always further down, always 'round the bend
+you'll do this, get to that, or go there --\
+Always further down and always then --\
+When if you'd just walk, you'd get somewhere. 
 
-This is for you to forget:\
+Better to accept\
+Although some forget\
+That waking dreams suffocate from fret\
+And conversely excite\
+Nay, those dreams ignite\
+When mind's shadow moves them from the light. 
+
 The best concern not with what the future brings\
-because Beautiful people love beautiful things\
+because Beautiful people love Beautiful things\
 Whereever one is, the other you'll find\
-To remind you of love and calm your worried mind.
+'Tis true now and 'tis true for all of time.
 
-17 Nov. 2023\
+-----
+
+Orig. 17 Nov 2023\
 Mok Coffee, Brussels
+
+Last edited. 3 Jan 2024

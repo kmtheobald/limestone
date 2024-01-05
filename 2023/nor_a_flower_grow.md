@@ -18,3 +18,7 @@ drop their act.\
 And second, in the ruin,\
 observing that obsidian glass, when\
 you drop yours.
+
+-----
+
+Orig. 9 Jun 2023

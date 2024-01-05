@@ -48,4 +48,7 @@ I stood and began to depart, lastly adding, "You really do have beautiful eyes."
 Not five minutes later, walking home, I spotted a crew of men working across the way. What they were exactly doing was unclear, but I could make out what one yelled to the rest:\
 "Chop down the Douglas fir!"
 
+-----
 
+Orig. 14 Apr 2023
+Laclede Lofts

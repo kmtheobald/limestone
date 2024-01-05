@@ -12,3 +12,8 @@ Hestia stokes in gentle selflessness.\
 Great blaze of phoenix pyre, to be reborn,\
 is wrought with care by mourning angels' light\
 while bleeding hearts fear Aphrodite's kiss.
+
+-----
+
+Orig. 5 Jun 2023
+Gelateria

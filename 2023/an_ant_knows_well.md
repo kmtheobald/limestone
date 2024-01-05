@@ -12,3 +12,10 @@ Of strength in number, will, and civic pride,\
 As progress built has no idyllic sort.\
 From simply looking down what might one gain\
 In matters both of trust and world sustain?
+
+-----
+
+Orig. 17 Feb 2023
+Laclede Lofts
+
+Last edited. 20 Feb 2023

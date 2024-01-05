@@ -22,3 +22,8 @@ The blessed are meant to pardon anyway\
 They linger not on our past faults nor woes\
 Remember well that we suffice to say\
 "I judge that all is well - I'll be okay."
+
+-----
+
+Orig. 25 Mar 2023
+Laclede Lofts

@@ -21,3 +21,8 @@ he'd've known to love dark.
 Our fire breathes licks of light\
 While the sun blinds too bright\
 And outside the cave lacks spark.
+
+-----
+
+Orig. 18 Jun 2023
+Gelateria

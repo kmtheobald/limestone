@@ -236,3 +236,11 @@ By volition or escort
 the palms of my hands affirm my existence
 A gentle touch or a hard blow; their capacity
 to build, to craft, to grasp...
+
+Moment between moments
+during which the heart fills
+the mind dances and
+the soul sings.
+
+I should like to sit beneath this here tree
+And converse about life, just it and me.

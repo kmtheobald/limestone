@@ -18,8 +18,8 @@ We'll lend you our ears\
 If we can only hear\
 You, the next great poet.
 
-They check and check, they watch the time\
-Any minute now, sweet release\
+We check and check, we watch the time\
+Any minute now, that first line\
 Any second now, for God's sake\
 That voice, those words which drum and quake
 

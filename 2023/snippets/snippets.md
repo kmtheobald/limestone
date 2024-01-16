@@ -244,3 +244,16 @@ the soul sings.
 
 I should like to sit beneath this here tree
 And converse about life, just it and me.
+
+
+One is a lonely number
+Like the chopstick in my drawer
+Like a missing sock
+Singular, singular
+
+
+We're put on Earth for one and one purpose
+alone -- to see the light of day before
+slinking below the dirt where we belong.
+We're put on Earth for one purpose alone
+We rise to see the light of day.

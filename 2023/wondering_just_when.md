@@ -1,7 +1,7 @@
 You sit around wondering just when\
 you'll do this, get to that, or go there --\
 Always further down and always then --\
-When if you'd just walk, you'd get somewhere. 
+When if you'd just walk, you'd get some where. 
 
 Better to accept\
 Although some forget\

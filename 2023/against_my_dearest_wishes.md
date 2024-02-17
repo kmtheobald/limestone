@@ -13,9 +13,7 @@ Because along with, hand in hand, went a sound\
 As mercy, lithe and nimble, rang her bell\
 Forgiving me, be I in right or wrong.
 
-
-------
-
+-----
 
 Against my dearest wishes here I sit,\
 A man of four and twenty timid years --\
@@ -31,3 +29,7 @@ My ordinary verse may well strike hearts\
 One day, though I prefer this humble height --\
 In scribbling soft for me and me alone\
 I too, so proudly, serve and please the arts.
+
+-----
+
+Title:\

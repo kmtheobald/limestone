@@ -257,3 +257,10 @@ alone -- to see the light of day before
 slinking below the dirt where we belong.
 We're put on Earth for one purpose alone
 We rise to see the light of day.
+
+
+An enemy is at the door, waiting\
+Don't answer, don't answer
+
+A friend is not a friend\
+Just because he's in your head

@@ -28,9 +28,9 @@ such that human courtship of Grace may not whittle, never.
 
 -----
 
+Title:\
 Orig. 27 Jun 2023\
 Q coffee\
-
 Last edited. 3 Aug 2023\
 Grandparent's house
 

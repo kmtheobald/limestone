@@ -15,7 +15,7 @@ In matters both of trust and world sustain?
 
 -----
 
-Orig. 17 Feb 2023
-Laclede Lofts
-
+Title:\
+Orig. 17 Feb 2023\
+Laclede Lofts\
 Last edited. 20 Feb 2023

@@ -5,7 +5,7 @@ Whilst we so bask in borrowed light.
 
 Our light that's theirs; their hallowed might\
 to build a world dug out from sand\
-to build it well lest we, unmanned,\
+and build it well lest we, unmanned,\
 with greedy mouths take out a bite.
 
 I search within for them without\
